@@ -4,4 +4,4 @@ This repo will track my progress as an applicant for the master in computer scie
 [APPLY HERE](https://gradadmissions.stanford.edu/apply/apply-now)
 
 ## 3 Recommendation Letters
-I need to get back to the previous professors I had. Probably classes where I got A's and need to work on my portfolio that way, I can share it so the professor can have an idea of me as a student since it's been a while since we interacted also most likely they won't remember me specifically.
+I need to get back to the previous professors I had. Probably classes where I got A's and need to work on my portfolio that way, I can share it so the professor can have an idea of me as a student since it's been a while since we interacted also most likely they won't remember me specifically. Recommender does not need to be a current proffesor meaning they can be retired or working back in the industry.
