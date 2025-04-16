@@ -10,4 +10,4 @@ I need to get back to the previous professors I had. Probably classes where I go
 
 
 ## Non-degree seeking student at BYU-I
-This idea can help me with some standard prerequisite grad school courses and recommendation letters.
+This idea can help me with standard prerequisite grad school courses and recommendation letters. Take a few credit and research on the professors
